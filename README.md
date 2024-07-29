@@ -1,3 +1,1 @@
-- Roblox Developer
-
-Hi.
+fucking idiot.
